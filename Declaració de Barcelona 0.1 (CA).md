@@ -1,4 +1,4 @@
-# Esborrany de la declaració sorgint del grup Llavor, a Febrer de 2024.
+# Esborrany de la declaració sorgint del grup Llavor, a Febrer de 2025.
 
 # Diversitats
 La cultura ha de promoure el reconeixement de la diversitat com a fonament de dret i equitat, tot parant especial atenció en evitar la segregació i la discriminació. 
