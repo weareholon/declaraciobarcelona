@@ -1,3 +1,5 @@
+# Esborrany de la declaració sorgint del grup Cultiu, a Maig de 2025.
+
 ## **Preàmbul**
 
 La Declaració de Barcelona pels Drets Culturals respon a un context global d’agudització de crisis climàtiques i socials, i de tensió creixent també a causa de canvis en l’ordre mundial de poders entre nacions. En aquest procés de transició ple d’ambigüitat s’està fent evident el rol cabdal de la cultura per fer avançar visions de futur sobre els presents en disputa.
