@@ -1,4 +1,4 @@
-# Draft of the declaration emerging from the Seed Group, in February 2025.
+# Draft of the declaration emerging from the Seed Group, in February 2025. Machine translated from catalan.
 
 # Diversities
 Culture must promote the recognition of diversity as a foundation of law and equity, paying special attention to avoiding segregation and discrimination.
