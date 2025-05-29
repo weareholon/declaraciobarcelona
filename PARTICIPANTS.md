@@ -1,8 +1,10 @@
-Participants en la redacció de la Declaració de Barcelona pels drets Culturals
-Participantes en la redacció de la Declaración de Barcelona por los Derechos Culturales
-Participants in the Barcelona Declaration for Cultural Rights
+**Participants en la redacció de la Declaració de Barcelona pels drets Culturals**
 
-In no particular order
+Participantes en la redacció de la Declaración de Barcelona por los Derechos Culturales
+
+_Participants in the Barcelona Declaration for Cultural Rights_
+
+
 
 Maria Sòria 
 Anna Solà
