@@ -1,4 +1,4 @@
-# Borrador de la declaración surgiendo del grupo Cultiu, en Mayo de 2025.
+# Borrador de la declaración surgiendo del grupo Cultivo, en Mayo de 2025.
 
 ## **Preámbulo**
 
