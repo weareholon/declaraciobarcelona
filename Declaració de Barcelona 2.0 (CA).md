@@ -2,28 +2,26 @@
 
 ## **Preàmbul**
 
-La Declaració de Barcelona pels Drets Culturals respon a un context global d’agudització de crisis climàtiques i socials, i de tensió creixent també a causa de canvis en l’ordre mundial de poders entre nacions. En aquest procés de transició ple d’ambigüitat s’està fent evident el rol cabdal de la cultura per fer avançar visions de futur sobre els presents en disputa.
+La Declaració de Barcelona pels Drets Culturals respon a un context global d’agudització de crisis climàtiques i socials, i de tensió creixent també a causa de canvis en l’ordre mundial. En aquest procés de transició ple d’ambigüitats i disputes s’està fent evident el rol cabdal de la cultura per fer avançar visions de futur sobre els presents en disputa.
 
-Una forma d’explicar els presents en disputa és a través de formes culturals promovent els drets humans i del planeta i de formes culturals promovent una reacció cap a marcs normatius. Aquesta declaració reconeix la crisi profunda dels marcs normatius sorgits de la Segona Guerra Mundial, tant per qui en critica el contingut, com per qui critica que se segueixen utilitzant els drets humans i la democràcia de forma retòrica per perpetuar les pitjors atrocitats. Per això, construint sobre exemples culturals que superen el nihilisme i les lluites dels últims contra els penúltims, la Declaració de Barcelona pels Drets Culturals vol posar de manifest que hi ha sempre una dimensió cultural en l’exercici i defensa de qualsevol dret humà i del planeta, i que les pràctiques culturals promouen poden promoure dignes d'acord amb els drets humans. 
+Una forma d’explicar els presents en disputa és a través de formes culturals promovent els drets humans i del planeta i de formes culturals promovent una reacció cap a aquests marcs normatius. Aquesta declaració reconeix la crisi profunda dels marcs normatius sorgits de la Segona Guerra Mundial, tant per qui en critica el contingut, com per qui critica que se segueixen utilitzant els drets humans i la democràcia de forma retòrica per perpetuar les pitjors atrocitats. Per això la Declaració de Barcelona pels Drets Culturals construeix sobre exemples culturals que superen el nihilisme i les lluites dels últims contra els penúltims. La Declaració vol posar de manifest que hi ha sempre una dimensió cultural en l’exercici i defensa de qualsevol dret humà i del planeta, i que les pràctiques culturals poden promoure dignitat humana d'acord amb aquests marcs normatius. 
 
 A continuació presentem àmbits especialment actius on considerem que s’està disputant la promoció o erosió els drets humans i del planeta, i les formes que prenen les pràctiques culturals en cada àmbit específic.
 
 ## **Diversitats**
 
-Les pràctiques culturals i tot el que les envolta promouen la diversitat com el reconeixement de la pluralitat de les persones i cultures en les societats actuals, i el respecte als seus drets i llibertats. El seu reconeixement és el fonament de dret i equitat, per evitar la segregació i la discriminació. Aquest reconeixement es manifesta en les diversitats ètnic-racials, religioses i espirituals, identitàries, de sexe-gèneres, físiques i mentals, ideològiques i intel·lectuals, lingüístiques, incloent-hi la consideració dels pobles originaris, tant a escala individual com col·lectiva.
-
-Les pràctiques culturals que reconeixen i enriqueixen la diversitat tenen la capacitat de crear mecanismes d’equilibri i transformació que garanteixen la participació activa dels subjectes representants d’aquesta pluralitat. Aquestes pràctiques i la vida cultural que fomenten preserven la biodiversitat cultural, i és des d’aquesta riquesa que podem construir imaginaris culturals i simbòlics oberts, vius i capaços de pensar el futur en comú.
+Les pràctiques culturals i tot el que les envolta poden promoure les diversitats i el reconeixement de la pluralitat de les persones i cultures en les societats actuals, així com el respecte als seus drets i llibertats. Aquest reconeixement és el fonament de dret i equitat, per evitar la segregació i la discriminació per diferències ètnic-racials, religioses i espirituals, identitàries, de sexe-gèneres, físiques i mentals, ideològiques i intel·lectuals, lingüístiques, incloent-hi la consideració dels pobles originaris, tant a escala individual com col·lectiva.
+Aquestes pràctiques culturals reconeixen i enriqueixen la societat. Tenen la capacitat de crear mecanismes d’equilibri i transformació que garanteixen la participació activa de tota la ciutadania, i en especial, de les persones històricament discriminades. Les pràctiques i formes de vida que fomenten i preserven la biodiversitat cultural, tenen la capacitat d'instituir  imaginaris culturals i simbòlics capaços de pensar un futur en comú.
 
 ### **Quan la cultura erosiona drets en relació amb les diversitats**
-
 - Es construeix un marc cultural homogeneïtzador que veu la diversitat com una amenaça i la subordina als interessos del mercat i de les institucions.
-- Es defensa la cultura majoritària en detriment de les minories i sense garantir els drets culturals.
-- No es reconeix el caràcter mestís i híbrid de moltes cultures contemporànies, alimentant discursos essencialistes.
-- Es promou la difusió cultural de manera desigual, excloent minories o col·lectius marginalitzats i vulnerabilitzats, generant violències simbòliques.
-- Es construeixen memòries col·lectives esbiaixades que invisibilitzen la diversitat i les aportacions de comunitats minoritzades.
+- Es defensa la cultura majoritària en detriment de les minories i/oi col·lectius minoritzats sense garantir els seus drets culturals.
+- No es reconeix el caràcter mestís, híbrid i plural d'una nació, alimentant discursos identitaris i essencialistes.
+- Es promou la creació i difusió cultural de manera desigual, excloent del dit sistema cultura les minories i/o col·lectius marginalitzats i vulnerabilitzats, generant desigualtats sistèmiques i violències simbòliques.
+- Es construeixen memòries col·lectives i històriques esbiaixades que invisibilitzen la pluralitat nacional i les aportacions de les persones i comunitats minoritzades.
 - Els protocols, plecs, subvencions i concursos públics esdevenen eines de discriminació estructural.
-- S’actua amb rentada de consciències: es creu que posar una persona liderant un àmbit és suficient per abordar una problemàtica, sense polítiques de fons.
-- El paternalisme, l’assistencialisme i el bonisme actuen com a formes subtils de violència simbòlica.
+- S’actua des de la tokenització cultural fomentant la inclusió simbòlica i superficial d'elements culturals dels grups minoritaris i minoritzats, sense una veritable transformació en les estructures o sistemes que perpetuen la desigualtat.
+- Es generen formes subtils de violència simbòlica a conseqüència del paternalisme, l’assistencialisme i del bonisme.
 
 ### **Quan la cultura promou drets i obre camins de transició**
 
