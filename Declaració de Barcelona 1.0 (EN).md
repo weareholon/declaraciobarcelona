@@ -2,28 +2,26 @@
 
 ## ** Preamble **
 
-The Barcelona Declaration for Cultural Rights responds to a global context of worsening climate and social crises, and of growing tension also due to changes in the world order of powers between nations. In this transition process full of ambiguity, the key role of culture in advancing visions of the future on the disputed present is becoming evident.
+The Barcelona Declaration for Cultural Rights responds to a global context of worsening climate and social crises, and of growing tension also due to changes in the world order. In this transition process full of ambiguities and disputes, the key role of culture in advancing visions of the future on the disputed present is becoming evident.
 
-One way to explain the disputed present is through cultural forms promoting human and planetary rights and through cultural forms promoting a reaction towards normative frameworks. This declaration recognizes the profound crisis of the normative frameworks that emerged from the Second World War, both for those who criticize their content and for those who criticize that human rights and democracy continue to be used rhetorically to perpetuate the worst atrocities. Therefore, building on cultural examples that overcome nihilism and the struggles of the last against the penultimate, the Barcelona Declaration for Cultural Rights aims to highlight that there is always a cultural dimension in the exercise and defense of any human and planetary right, and that cultural practices promote can promote worthy rights in accordance with human rights.
+One way to explain the disputed present is through cultural forms promoting human and planetary rights and through cultural forms promoting a reaction towards these normative frameworks. This declaration recognizes the profound crisis of the normative frameworks that emerged from the Second World War, both for those who criticize their content and for those who criticize that human rights and democracy continue to be used rhetorically to perpetuate the worst atrocities. For this reason, the Barcelona Declaration for Cultural Rights builds on cultural examples that overcome nihilism and the struggles of the last against the penultimate. The Declaration aims to highlight that there is always a cultural dimension in the exercise and defense of any human and planetary right, and that cultural practices can promote human dignity in accordance with these normative frameworks.
 
 Below we present particularly active areas where we consider that the promotion or erosion of human and planetary rights is being contested, and the forms that cultural practices take in each specific area.
 
 ## **Diversities**
 
-Cultural practices and everything that surrounds them promote diversity as the recognition of the plurality of people and cultures in today's societies, and respect for their rights and freedoms. Their recognition is the foundation of law and equity, to avoid segregation and discrimination. This recognition is manifested in ethnic-racial, religious and spiritual, identity-related, sex-gender, physical and mental, ideological and intellectual, linguistic diversities, including the consideration of original peoples, both on an individual and collective scale.
+Cultural practices and everything that surrounds them can promote diversities and the recognition of the plurality of people and cultures in today's societies, as well as respect for their rights and freedoms. This recognition is the foundation of law and equity, to avoid segregation and discrimination based on ethnic-racial, religious and spiritual, identity-related, sex-gender, physical and mental, ideological and intellectual, linguistic differences, including the consideration of indigenous peoples, both on an individual and collective scale.
+These cultural practices recognize and enrich society. They have the capacity to create mechanisms of balance and transformation that guarantee the active participation of all citizens, and especially of historically discriminated people. The practices and ways of life that promote and preserve cultural biodiversity have the capacity to institute cultural and symbolic imaginaries capable of thinking about a common future.
 
-Cultural practices that recognize and enrich diversity have the capacity to create mechanisms of balance and transformation that guarantee the active participation of the subjects representing this plurality. These practices and the cultural life they foster preserve cultural biodiversity, and it is from this richness that we can build open, living and symbolic cultural imaginaries capable of thinking about the future in common.
-
-### **When culture erodes rights in relation to diversities**
-
+### **When culture erodes rights in relation to diversity**
 - A homogenizing cultural framework is constructed that sees diversity as a threat and subordinates it to the interests of the market and institutions.
-- The majority culture is defended to the detriment of minorities and without guaranteeing cultural rights.
-- The mixed and hybrid nature of many contemporary cultures is not recognized, fueling essentialist discourses.
-- Cultural diffusion is promoted unequally, excluding minorities or marginalized and vulnerable groups, generating symbolic violence.
-- Biased collective memories are constructed that make the diversity and contributions of minority communities invisible.
+- The majority culture is defended to the detriment of minorities and/or minority groups without guaranteeing their cultural rights.
+- The mixed, hybrid and plural character of a nation is not recognized, fueling identity and essentialist discourses.
+- Cultural creation and dissemination is promoted unequally, excluding minorities and/or marginalized and vulnerable groups from the said cultural system, generating systemic inequalities and symbolic violence.
+- Biased collective and historical memories are constructed that make national plurality and the contributions of minoritized people and communities invisible.
 - Protocols, specifications, subsidies and public competitions become tools of structural discrimination.
-- People act with a conscience: it is believed that putting one person leading an area is enough to address a problem, without underlying policies.
-- Paternalism, welfareism and bonism act as subtle forms of symbolic violence.
+- Cultural tokenization is acted upon, promoting the symbolic and superficial inclusion of cultural elements of minority and minoritized groups, without a true transformation in the structures or systems that perpetuate inequality.
+- Subtle forms of symbolic violence are generated as a result of paternalism, welfareism and benevolence.
 
 ### **When culture promotes rights and opens paths for transition**
 
