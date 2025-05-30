@@ -1,4 +1,5 @@
 # Esborrany de la declaració sorgint del grup Cultiu, a Maig de 2025.
+Envia esmenes o comentaris sobre la Declaració a culturopolis@diba.cat 
 
 ## **Preàmbul**
 
