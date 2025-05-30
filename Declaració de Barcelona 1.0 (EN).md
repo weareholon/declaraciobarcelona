@@ -1,4 +1,5 @@
 # Draft of the declaration emerging from the Cultivation group, in May 2025. Version machine translated from catalan.
+Send amendments or comments on the Declaration to culturopolis@diba.cat
 
 ## ** Preamble **
 
