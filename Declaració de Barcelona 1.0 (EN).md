@@ -1,7 +1,7 @@
 # Draft of the declaration emerging from the Cultivation group, in May 2025. Version machine translated from catalan.
 Send amendments or comments on the Declaration to culturopolis@diba.cat
 
-## ** Preamble **
+## **Preamble**
 
 The Barcelona Declaration for Cultural Rights responds to a global context of worsening climate and social crises, and of growing tension also due to changes in the world order. In this transition process full of ambiguities and disputes, the key role of culture in advancing visions of the future on the disputed present is becoming evident.
 
