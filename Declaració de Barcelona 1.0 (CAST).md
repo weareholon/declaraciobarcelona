@@ -1,4 +1,5 @@
 # Borrador de la declaración surgiendo del grupo Cultivo, en Mayo de 2025.
+Envía enmiendas o comentarios sobre la Declaración a culturopolis@diba.cat
 
 ## **Preámbulo**
 
