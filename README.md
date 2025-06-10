@@ -1,6 +1,8 @@
 # Declaració de Barcelona pels Drets Culturals. Barcelona's Declaration for Cultural Rights
 _English below_
 
+Envia esmenes o comentaris sobre la Declaració a culturopolis@diba.cat
+
 En aquests documentació trobareu les versions del Redactat de la Declaració de Barcelona pels Drets Culturals, part de Culturòpolis 2025. Més informació a https://www.diba.cat/ca/web/culturopolis
 
 La Declaració de Barcelona, és un document co-creat entre desembre del 2024 i setembre del 2025 que explora la dimensió cultural dels altres drets (socials, econòmics, ambientals, educatius, etc.). El seu objectiu és generar un nou marc conceptual expandit que faciliti i propiciï el desenvolupament de noves estratègies polítiques i ciutadanes a favor del bé comú.
@@ -10,6 +12,8 @@ Aquesta declaració parteix de la premissa que avui la cultura té un paper impr
 _English_
 
 In this documentation you will find the versions of the Barcelona Declaration for Cultural Rights, part of Culturòpolis 2025. More information at https://www.diba.cat/ca/web/culturopolis
+
+Send amendments or comments on the Declaration to culturopolis@diba.cat
 
 The Barcelona Declaration is a document co-created between December 2024 and September 2025 that explores the cultural dimension of other rights (social, economic, environmental, educational, etc.). Its objective is to generate a new expanded conceptual framework that facilitates and promotes the development of new political and citizen strategies in favor of the common good.
 
