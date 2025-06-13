@@ -3,7 +3,7 @@ Envia esmenes o comentaris sobre la Declaració a culturopolis@diba.cat
 
 ## **Preàmbul**
 
-La Declaració de Barcelona pels Drets Culturals respon a un context global d’agudització de crisis climàtiques i socials, i de tensió creixent també a causa de canvis en l’ordre mundial. En aquest procés de transició ple d’ambigüitats i disputes s’està fent evident el rol cabdal de la cultura per fer avançar visions de futur sobre els presents en disputa.
+La Declaració de Barcelona pels Drets Culturals respon a un context global d’agudització de crisis climàtiques i socials i també de tensió creixent a causa de canvis en l’ordre mundial. En aquest procés de transició ple d’ambigüitats i disputes s’està fent evident el rol cabdal de la cultura per fer avançar visions de futur sobre els presents en disputa.
 
 Una forma d’explicar els presents en disputa és a través de formes culturals promovent els drets humans i del planeta i de formes culturals promovent una reacció cap a aquests marcs normatius. Aquesta declaració reconeix la crisi profunda dels marcs normatius sorgits de la Segona Guerra Mundial, tant per qui en critica el contingut, com per qui critica que se segueixen utilitzant els drets humans i la democràcia de forma retòrica per perpetuar les pitjors atrocitats. Per això la Declaració de Barcelona pels Drets Culturals construeix sobre exemples culturals que superen el nihilisme i les lluites dels últims contra els penúltims. La Declaració vol posar de manifest que hi ha sempre una dimensió cultural en l’exercici i defensa de qualsevol dret humà i del planeta, i que les pràctiques culturals poden promoure dignitat humana d'acord amb aquests marcs normatius. 
 
