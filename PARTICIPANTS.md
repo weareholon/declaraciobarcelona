@@ -6,58 +6,58 @@ _Participants in the Barcelona Declaration for Cultural Rights_
 
 
 
-Maria Sòria 
-Anna Solà
-Gemma Carbó
-Lucia Piedra
-Martí Sales
-Marina Monsonis
-Oriol Cendra
-Rosa Cerarols 
-Youssef Maimuni
-Alfons Martinell
-Miquel Missé
-Luca Gervasoni
-Diego Sálazar
-Estela Ortiz
-Àngel Mestres
-Cristina Alonso
-Martina Nadal
-Pedro Casermeiro
-Susana Arias
-Àngel Hom
-Elena Guerrero
-Silvia Zayas
-Proyecto UNA
-Montse Moliner
-Fatima Ahmed
-Carme Borrell
-Jordi Baltà
-Marta Cruells
-Senén Roy
-Ricard Espelt
-Clàudia Delso
-Youssef Sultan
-Gilad Buzi
-Núria Guiu
-Sònia Gainza
-Guillem D’Efak Fullana
-Leo Espluga
-Marta Domènech
-Norma Véliz
-Irene Turiel
-Roger de Dedeu i Patricia Gabeiras)
-Tania Adam
-Tere Badia
-Dani Granados
-Eduard Arderiu
-Laurence Cuny
-Jordi Pascual
-Laia Gargallo
-Laia Ramos 
-Nico Barbieri
-Sergi Diaz
-Francesc Vilaró
-Eva Soria
-Andreu Belsunces Gonçalves
+Maria Sòria, 
+Anna Solà,
+Gemma Carbó,
+Lucia Piedra,
+Martí Sales,
+Marina Monsonis,
+Oriol Cendra,
+Rosa Cerarols, 
+Youssef Maimuni,
+Alfons Martinell,
+Miquel Missé,
+Luca Gervasoni,
+Diego Sálazar,
+Estela Ortiz,
+Àngel Mestres,
+Cristina Alonso,
+Martina Nadal,
+Pedro Casermeiro,
+Susana Arias,
+Àngel Hom,
+Elena Guerrero,
+Silvia Zayas,
+Proyecto UNA,
+Montse Moliner,
+Fatima Ahmed,
+Carme Borrell,
+Jordi Baltà,
+Marta Cruells,
+Senén Roy,
+Ricard Espelt,
+Clàudia Delso,
+Youssef Sultan,
+Gilad Buzi,
+Núria Guiu,
+Sònia Gainza,
+Guillem D’Efak Fullana,
+Leo Espluga,
+Marta Domènech,
+Norma Véliz,
+Irene Turiel,
+Roger de Dedeu i Patricia Gabeiras),
+Tania Adam,
+Tere Badia,
+Dani Granados,
+Eduard Arderiu,
+Laurence Cuny,
+Jordi Pascual,
+Laia Gargallo,
+Laia Ramos, 
+Nico Barbieri,
+Sergi Diaz,
+Francesc Vilaró,
+Eva Soria,
+Andreu Belsunces Gonçalves i 
 Adrià Garcia i Mateu
